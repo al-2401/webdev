@@ -1,5 +1,5 @@
 
-Автор публикации <h2>olga0lechk4</h2>
+Автор публикации <h2><a href="https://habr.com/post/416359/">olga0lechk4</a></h2>
 6 июля 2018 в 00:19
 
 
